@@ -1,1 +1,0 @@
-# Synapse-Daily-main
